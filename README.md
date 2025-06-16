@@ -14,7 +14,7 @@ Sou curioso e estou sempre aprendendo coisas novas, especialmente no mundo da pr
 
 Também valorizo muito minha família e amigos, e levo comigo tudo o que me inspira no dia a dia.  
 
-✨ Me inspiro e me conecto com:  
+✨ Mminhas redes sociais:  
 [@aysla_milenaa](https://www.instagram.com/aysla_milenaa) | [@c.f.a.y.s.l.a](https://www.instagram.com/c.f.a.y.s.l.a)
 
 ---
