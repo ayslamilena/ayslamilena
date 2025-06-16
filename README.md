@@ -32,7 +32,7 @@ Também valorizo muito minha família e amigos, e levo comigo tudo o que me insp
 ## 📫 Vamos conversar?
 
 Se quiser trocar ideia ou colaborar em algo legal, me chama!  
-📧 [seu-email@gmail.com] *(adicione aqui seu e-mail se quiser)*
+📧 [aysla.ferreira@escola.pr.gov.br] **
 
 ---
 
