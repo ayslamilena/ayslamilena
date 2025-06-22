@@ -1,4 +1,4 @@
-# 👋 Olá! Eu sou [Aysla Milena dos Santos Ferreira]  
+# 👋 Olá! Eu sou Aysla Milena dos Santos Ferreira  
 
 🎓 Estudante do 1º ano do Ensino Médio  
 🏫 Colégio Estadual Amálio Pinheiro  
